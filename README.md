@@ -22,3 +22,4 @@
 4/14 no jams
 4/15 no jams
 4/17 no jams
+4/19 cut thumb 
