@@ -29,3 +29,4 @@
 5/5 no jams
 5/6 no jams
 5/8 no jams
+5/12 no jams
