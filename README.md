@@ -37,3 +37,4 @@
 6/3 no jams
 6/4 no Jams
 6/6 no jams
+6/7 no jams
